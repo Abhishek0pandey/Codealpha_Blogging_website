@@ -40,7 +40,7 @@ Contributions are welcome! If you would like to contribute to UnpublishedClub, p
 
 ## Contact
 
-For any help and query contact me on abhay73abhay@gmail.com
+For any help and query contact me on abhee0p@gmail.com
 
 ## Deployment Link
 
